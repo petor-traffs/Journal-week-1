@@ -1,1 +1,0 @@
-# Journal-week-1
